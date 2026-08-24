@@ -15,6 +15,10 @@ Porque *você* não deve **comprar** GTA 6?
 ## listas não ordenadas
 
 * sei nãokkk
+    1. sad
+    2. sad
+    3. sadas
+
 * ola mundo
 * gta 6
 * não merece vc
