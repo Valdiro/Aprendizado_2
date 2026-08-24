@@ -41,8 +41,18 @@ Olha só isso:
 
 [![CLique Aqui](https://static0.gamerantimages.com/wordpress/wp-content/uploads/2026/06/grand-theft-auto-6-tag-cover-art.jpg?q=49&fit=contain&w=480&dpr=2)](https://www.amazon.com.br/Grand-Theft-Auto-VI-PlayStation/dp/B0H6KT2RWH)
 
+## função soma kkkk do nada
+
 ```javascript
 function soma(a, b){
     return a + b;
 }
 ```
+
+## lista de coisas a fazer 
+
+- [x] Começar a estudar
+- [] Criar um jogo
+- [] Terminar a facul
+- [] Jogar Batman Arkhan Knight
+- [] Arrumar uma namorada (crying)
