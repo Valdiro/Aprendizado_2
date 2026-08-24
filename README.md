@@ -25,10 +25,8 @@ Porque *você* não deve **comprar** GTA 6?
 
 ### Imagem de m personagem aleatório *NÃO* escolhido a dedo
 
-[Tenna](img/Tenna.png)
+![Tenna](img/Tenna.png)
 
 ### Imagem Aleatória
 
-[Aleatóriokkkk](https://i.pinimg.com/originals/04/e9/53/04e953d754be1e7820b4793067fcd667.jpg)
-
-kkkkkkkkkkkkkksadas
+![Aleatóriokkkk](https://i.pinimg.com/originals/04/e9/53/04e953d754be1e7820b4793067fcd667.jpg)
