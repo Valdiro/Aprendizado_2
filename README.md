@@ -30,3 +30,13 @@ Porque *você* não deve **comprar** GTA 6?
 ### Imagem Aleatória
 
 ![Aleatóriokkkk](https://i.pinimg.com/originals/04/e9/53/04e953d754be1e7820b4793067fcd667.jpg)
+
+# ponto 2 please read mkkkk
+
+[BAIXE AGORA GTA 6 ATUALIZADO PC 4K FULL RAY TRACING CONFIA](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
+Eai gostaram do que viram encima? kkkk
+
+Olha só isso:
+
+[![CLique Aqui](https://static0.gamerantimages.com/wordpress/wp-content/uploads/2026/06/grand-theft-auto-6-tag-cover-art.jpg?q=49&fit=contain&w=480&dpr=2)](https://www.amazon.com.br/Grand-Theft-Auto-VI-PlayStation/dp/B0H6KT2RWH)
