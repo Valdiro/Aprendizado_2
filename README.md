@@ -52,7 +52,7 @@ function soma(a, b){
 ## lista de coisas a fazer 
 
 - [x] Começar a estudar
-- [] Criar um jogo
-- [] Terminar a facul
-- [] Jogar Batman Arkhan Knight
-- [] Arrumar uma namorada (crying)
+- [ ] Criar um jogo
+- [ ] Terminar a facul
+- [ ] Jogar Batman Arkhan Knight
+- [ ] Arrumar uma namorada (crying)
