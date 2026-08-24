@@ -22,3 +22,13 @@ Porque *você* não deve **comprar** GTA 6?
 * ola mundo
 * gta 6
 * não merece vc
+
+### Imagem de m personagem aleatório *NÃO* escolhido a dedo
+
+[Tenna](img/Tenna.png)
+
+### Imagem Aleatória
+
+[Aleatóriokkkk](https://i.pinimg.com/originals/04/e9/53/04e953d754be1e7820b4793067fcd667.jpg)
+
+kkkkkkkkkkkkkksadas
